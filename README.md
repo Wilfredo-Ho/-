@@ -9,3 +9,4 @@
 
 #### 青岛
 * [三日游 | 给青岛3天时间，还你一个完整的海城假日](http://www.mafengwo.cn/gonglve/ziyouxing/135648.html)
+* [青岛土著讲解，海岸线景点串联游玩路线](http://www.mafengwo.cn/gonglve/ziyouxing/62426.html)
